@@ -1,12 +1,10 @@
 - 👋 Hi, I’m @BennyBooWho
 - 👀 I’m interested in Music, Reading, Having fun ofc, and Spending time with friends
-- 🌱 I’m currently learning How to work on myself and my temper and be respectful and to hopefully get tht respect bck and if not your on my list ✍️(◔◡◔)
-- 💞️ I’m looking to collaborate on certain stuff like ykkk 
-- 📫 How to reach me Just talk to me thts bout it
+- 🌱 I;m doing mostly Scrath.com (coding website)
+- 💞️ I’m looking to collaborate but idk
+- 📫 How to reach me Just talk to me throught dc which is uwu_4_0
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Im 🌈🌈, and I ❤️ to party 
+- ⚡ Fun fact: Im 🌈, but i am a party animal
 
-<!---
-BennyBooWho/BennyBooWho is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+
+
